@@ -1,0 +1,6 @@
+Let all your dreams come true✊move only forward and do not give up✌️One Russian folk wisdom says: "Who is looking, he will always find🙃
+👋 Hi, I'm @SokolRed
+- 👀 I am interested in microelectronics and electrical engineering.I am very passionate about electric scooter, I have three of them and all are different in classification, I built one myself, but not without the help of friends, we have a workshop for repairing this transport, now it remains to learn and gain knowledge that I did not get...I also love fishing , I can say it perfectly...
+- 🌱 Currently I'm trying to learn programming, do not judge strictly by this
+- 💞️ I am ready to share my knowledge if someone needs it and I will gladly accept help from more experienced people...
+- 📫 How to contact me ...write me an email i@sokolredmsk.ru
